@@ -1,0 +1,1 @@
+# seyfullahozcan.github.io
